@@ -22,4 +22,3 @@ Whay I **do** want you to do: Based on your observations i will like you to open
 Feel free to link to the posts you are refering to.
 
 And of course it is encouraged to read what other classmates post and comment on their posts (issues) as well.
-
